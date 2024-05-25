@@ -1,1 +1,1 @@
-# Garik205.EW-Shop.github.io
+# Garik205.github.io
